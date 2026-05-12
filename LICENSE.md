@@ -1,4 +1,4 @@
-# 
+# ultimate Automation for pump.fun sniper bot | back-running & take-profit offers the most advanced pump.fun sniper bot, with back-running and take-profit. Ideal for professional
 
 
 
